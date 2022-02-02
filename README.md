@@ -1,4 +1,4 @@
-# Desafio-Dio.me-1 [83928952.jfif](..\..\..\..\..\Área de Trabalho\83928952.jfif) 
+# Desafio-Dio.me-1  
 Meu primeiro Desafio, vou colocar falar um pouco de mim!
 
 
